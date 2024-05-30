@@ -1,4 +1,4 @@
-- I´m xRedDev. I only like red pictures ;)
+- xShyo_  my number 1 Fan
 
 <!---
 xRedDev/xRedDev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
